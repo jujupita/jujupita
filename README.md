@@ -1,4 +1,4 @@
-### vindas ao meu perfil 💙
+### Vindas ao meu perfil 💙
 
 
 Meu nome é Jujupita
