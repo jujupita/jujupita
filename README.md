@@ -9,4 +9,5 @@ Meu nome é Jujupita
 - ### Você entrar em contato comigo 📫
 
 00001095567718sp@al.educacao.sp.gov.br
-<div class="tenor-gif-embed" data-postid="5639120" data-share-method="host" data-aspect-ratio="1.25146" data-width="100%"><a href="https://tenor.com/view/puss-in-boots-shrek-please-beg-pretty-please-gif-5639120">Puss In Boots Shrek GIF</a>from <a href="https://tenor.com/search/puss+in+boots-gifs">Puss In Boots GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+
+https://tenor.com/pt-BR/view/puss-in-boots-shrek-please-beg-pretty-please-gif-5639120
