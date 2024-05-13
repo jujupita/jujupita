@@ -2,7 +2,7 @@
 
 
 Meu nome é Jujupita
-- Estou estudando no Alura;
+- Estou estudando no Alura
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esses espaços para a minha organizaçao e compartilhamento dos meus projetos desenvolvidos
 
